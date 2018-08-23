@@ -1,0 +1,2 @@
+# voyagesjust-paybaltes
+GitHub Pages
